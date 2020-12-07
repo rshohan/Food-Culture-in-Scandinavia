@@ -1,11 +1,14 @@
 # Food-Culture-in-Scandinavia
+
 By Jeffrey Whalen Yorktown
+
 A very interesting people the Scandinavians are, the culture captures a very rich and proud history to prosperous and beautiful lands scattered around great Seas and Oceans. Scandinavians take great pride in a culture which is only matched by their glorious history and Viking ancestors.
 Either it is as a result of an old or symbolic relationship they share with the sea, or because of their sometimes larger-than-life beliefs, the Scandinavian people has always had a peculiar food cultures and culinary styles. 
 Wonderful Scandinavian cuisines you should try
 An important aspect of Scandinavian dishes is that they are very simple meals. Lovers of Scandinavian Cuisines like Jeffery Whalen from Yorktown reckon that unlike their European neighbors, Seafood is very prominent in their dishes and cuisines, and this is a primary reason why Scandinavian foods are not overcooked. 
 •	Surstromming
 Like most Scandinavian dishes, seafood is at the center of this dish, it literally means Picked herring. Boiled potatoes, chives and lots of cream go with the herring to bring forth a delicious dish. The best part is that there are lots of flavors it can come in, and this is one special treat for you.
+
 •	Pulsa
 This literally translates to Scandia hotdogs, and just like the hotdogs we know, they are extremely yummy especially when in sandwiches. You should not miss out on these if you are in proximity of a Scandinavian restaurant. 
 •	Gravlax
@@ -20,11 +23,13 @@ Pea soup will leave you savoring the aftertaste of the meal. Apart from the fact
 With a region that has lots of sea boundaries, you cannot fault this people with fish. This delicacy is mostly served with scrambled eggs or made into sandwiches. Whichever way, this is one of the biggest export foods of the region.
 •	Kottbullar
 You will never know how delicious meatballs taste until they are mixed in creamy sauce and eaten with boiled potatoes. This special meal is very delicious and a good staple amongst the Scandinavians. 
+
 •	Glogg
 This is a popular punch in Scandinavia; it is made with other strong drinks like wine/brandy, then sherry, almonds and raisins. The drink is brewed for merrier times like Christmas and after dinner festivities in Scandinavia, and need I not say, a very strong drink.
 Jeff Whalen encourages you to visit his favorite Scandinavian cooking shows here.
 The Beauty in Scandinavian foods
 It is a fact that a large constituent of Scandinavian foods are natural food elements like Seafood, meats, potatoes and spices. Scandinavian households have gardens for most of the herbs and spices they use in their foods and processed foods make for little appearance on their menu. This is a big reason why Scandinavian delicacies were favorites for Jefferey Whalen all the way in Yorktown.
+
 Apart from these listed above; here are other things you will enjoy about the Scandinavian food culture
 	The meals are simple are symbolic
 Scandinavians (usually refer themselves as Vikings) favor simple meals which make the body lighter and merrier. With a good percentage of their meals coming from seafood, and primary vegetables, these meals are also easily digestible. 
@@ -48,5 +53,7 @@ Conclusions
 No matter your reservation on the Scandinavian cultures, their foods will amaze you. No matter where you find yourself, you should always visit Scandinavian restaurants and try the cuisines on their menu!
 Jeffrey Whalen from Yorktown Heights, NY with his wife and two sons.  He grew up in Katonah, NY. Jeffrey Whalen graduated from John Jay High School in Cross River, NY.  He went on to Boston, MA to receive dual undergraduate degrees in performance and music education from Berklee College of Music. Friends in high school and college affectionately called him “Al”. Jeff Whalen also earned a master’s degree in performance with a concentration in jazz at SUNY Purchase College in Purchase, NY.
 Please also visit Jeffrey Whalen from Yorktown’s other websites, blogs and social media:
+
 http://www.Jeffrey-Whalen.com
+
 http://www.Jeff-Whalen.com
